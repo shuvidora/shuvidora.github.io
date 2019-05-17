@@ -1,1 +1,0 @@
-# shuvidora.github.io
